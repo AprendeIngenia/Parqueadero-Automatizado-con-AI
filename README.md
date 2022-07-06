@@ -17,12 +17,5 @@ Simplemente suscribiendote a mi canal de YouTube:
 
 ### Siguiendome en mis redes sociales: 
 - [Instagram](https://www.instagram.com/santiagsanchezr/)
-- [Twitter](https://twitter.com/SantiagSanchezR))
-
-# Recuerda que puedes contribuir a que siga desarrollando:
-Simplemente suscribiendote a mi canal de YouTube:
-- [Canal YouTube](https://www.youtube.com/channel/UCzwHEOCbsZLjfELperJ6VeQ/videos)
-
-### Siguiendome en mis redes sociales: 
-- [Instagram](https://www.instagram.com/santiagsanchezr/)
 - [Twitter](https://twitter.com/SantiagSanchezR)
+
